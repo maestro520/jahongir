@@ -1,0 +1,2 @@
+# jahongir
+ziyotek study
